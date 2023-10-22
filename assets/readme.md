@@ -1,0 +1,1 @@
+Elegi hacer esta pagina porque soy hincha de velez y a mi novio le gusta coleccionar camisetas asi que me parecio una buena idea hacer algo que nos guste a los 2. No tuve tantos inconvenientes como pense que iba a tener pero si me gusto mas porque fue mas entretenido hacer este mas que el primero 
